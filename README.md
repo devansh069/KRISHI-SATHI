@@ -1,1 +1,0 @@
-# KRISHI-SATHI
